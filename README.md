@@ -1,2 +1,2 @@
 #MASERATI OFFICIAL WEBSITE
-Maserati official web page of all the car models, engine specifications, color preferences, advance bookings for the valuable customers
+This is Maserati company's official web page of all the car models, engine specifications, color preferences, advance bookings for the valuable customers
